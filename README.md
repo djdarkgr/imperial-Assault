@@ -1,2 +1,3 @@
 # imperial-Assault
- board game pieces
+ Parts and accessories not original to enhance the gaming experience Imperial Assault
+
